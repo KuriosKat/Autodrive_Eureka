@@ -7,4 +7,4 @@ Combining intelligent perception, real-time decision-making, and elegant control
 
 ✨ Eureka! – Discover the moment where automation meets intelligence.
 
-Powered by cutting-edge algorithms, driven by passion.
+Powered by Yi-Hyeong, Park
